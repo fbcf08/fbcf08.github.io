@@ -21,7 +21,7 @@
 - [långt utskast](https://youtu.be/ZLtE6kMyIu8)
 - [stoppa inspel](https://youtu.be/TnqPTZmdUAU)
 
-### övningar
+### Målvaktsövning
 - ["kryss" Målvaktsövning 1](https://www.youtube.com/watch?v=0_fuXHLIaZQ)
 - [Utmana skytten](https://www.youtube.com/watch?v=2KIigKPyfqc)
 
