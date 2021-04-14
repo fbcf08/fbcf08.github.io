@@ -24,8 +24,8 @@
 ### Målvaktsövning
 - ["kryss" Målvaktsövning 1](https://www.youtube.com/watch?v=0_fuXHLIaZQ)
 - [Utmana skytten](https://www.youtube.com/watch?v=2KIigKPyfqc)
-- [xx](https://www.instagram.com/p/BKInEyYBH8g/?igshid=zki89aggr4je)
-- [yy](https://www.instagram.com/p/BKICacahiMg/?igshid=4jnogquqs1n6)
+- [fotarbete](https://www.instagram.com/p/BKInEyYBH8g/?igshid=zki89aggr4je)
+- [dolda skott](https://www.instagram.com/p/BKICacahiMg/?igshid=4jnogquqs1n6)
 
 
 ## passningar
